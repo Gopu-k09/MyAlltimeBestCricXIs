@@ -1,4 +1,4 @@
 #AllTimeMyBestCricXIs!
 
-A presentation of all 3 format's the greatest squads!
+A presentation of all 3 formats the greatest squads!
 
